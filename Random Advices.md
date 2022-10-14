@@ -8,7 +8,12 @@
 
 5. He would always ask feedback. Everytime he did a new menu, he checked in if we liked it. Sometimes, when we have critical feedback for anything he cooked, he took it positively and tried to improve. Being open to constructive feedback is key to improve continuously. Also it's always important to collect feedback proactively.
 
-
+1) Staying in your comfort zone.
+2) Bad or a toxic circle
+3) Negative mindset and limiting beliefs.
+4) Herd Mentality.
+5) Not investing enough in skill enhancement and learning.
+6) Not focusing on Personal development and branding.
 
 ⭐️ Do less up-front: don't load latest content until needed by the user.
 ⭐️ Be really lazy: don't fetch more than needed content until the user needs them.
