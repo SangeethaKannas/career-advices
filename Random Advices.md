@@ -1,3 +1,14 @@
+1. He was always punctual. I cannot remember a day that he was late even by a minute. He may come few minutes early but never late. Respect for time is very important to build a great reputation.
+
+2. He was always regular. In 8 years, he has never taken a single day off. Very rarely he needs a leave but always informs well in advance. Commitment and dependability is very important in customer service.
+
+3. Though he was from Orissa, he could cook all cuisines very well, specially South Indian. Having diverse skills is super important to last long in any business.
+
+4. He never asked for a hike in all the years. Of course, we used to hike regularly but he never expressed any dissatisfaction in his salary or payments. His work was his top priority. It's not always that money can motivate performance. There has to be immense passion to be at your best.
+
+5. He would always ask feedback. Everytime he did a new menu, he checked in if we liked it. Sometimes, when we have critical feedback for anything he cooked, he took it positively and tried to improve. Being open to constructive feedback is key to improve continuously. Also it's always important to collect feedback proactively.
+
+
 
 ⭐️ Do less up-front: don't load latest content until needed by the user.
 ⭐️ Be really lazy: don't fetch more than needed content until the user needs them.
