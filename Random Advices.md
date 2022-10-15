@@ -1,3 +1,72 @@
+
+At times all you need is not only to push yourself a little bit more, but to accept that you’re facing a burnout, a creative block, a gloomy day to not do anything else but to wake up & still make yourself a plate of good food, turn on your laptop just to browse through your emails & do nothing else… allow yourself a good afternoon nap on a Saturday afternoon & come back to LinkedIn to share your burnout with your connections!
+
+Burnout is real. The only way to overcome is to accept it. Allow yourself a creative break. Sleep enough. Drink water. That’s it.
+The 3 crucial lessons nobody taught me but I learnt with experience :
+
+> Growth comes when you push yourself out of that comfort bubble. 
+New things might seem daunting at times but that’s when you will accommodate your own abilities to fit in the new ones. 
+
+> Your network can decide how far you go.
+Your circle of people can define the motivation inside you, the goals you set, the vision you have. Everything is influenced. So, make sure it’s all influenced by the right people. 
+
+> Self- worth is subjective. Not a metric for comparison.
+A lot of variables contribute to your journey. You can’t compare each and everything. Accept the unique path you are on and move ahead taking inspiration from others’ journeys.
+
+https://lnkd.in/dBZBt3GU
+
+
+Applying to a lot of jobs right now
+
+And wondering how to get your resume past the ATS
+
+Use these 4 simple steps:
+
+1.Paste your job description on a Free Cloud Generator (can be found as the first link when you search on google)
+
+2.Do the same for your resume and it will give you a list of keywords
+
+3. Compare the words or skills between your resume and the job description
+
+4. Rephrase the resume keywords with the job description key words
+
+This increases your chnace to clear the ATS
+
+Something I have done and would recommend others to do as well
+
+What do you think?
+
+𝗛𝗼𝘄 𝘁𝗼 𝗖𝗿𝗮𝗰𝗸 Amazon - https://lnkd.in/geszJTih
+𝗔𝗺𝗮𝘇𝗼𝗻 𝗖𝗿𝗮𝗰𝗸𝗲𝗿 𝗦𝗵𝗲𝗲𝘁 - https://bit.ly/3BYsLqD
+
+𝗛𝗼𝘄 𝘁𝗼 𝗖𝗿𝗮𝗰𝗸 Google - https://lnkd.in/gBsXk4gr
+𝗚𝗼𝗼𝗴𝗹𝗲 𝗖𝗿𝗮𝗰𝗸𝗲𝗿 𝗦𝗵𝗲𝗲𝘁 - https://bit.ly/3bmoi5V
+
+𝗛𝗼𝘄 𝘁𝗼 𝗖𝗿𝗮𝗰𝗸 Microsoft - https://lnkd.in/gX4DzKus
+𝗠𝗶𝗰𝗿𝗼𝘀𝗼𝗳𝘁 𝗖𝗿𝗮𝗰𝗸𝗲𝗿 𝗦𝗵𝗲𝗲𝘁 - https://bit.ly/3oIV3xq
+
+𝗛𝗼𝘄 𝘁𝗼 𝗖𝗿𝗮𝗰𝗸 Cisco - https://lnkd.in/dEV4FENS
+𝗖𝗶𝘀𝗰𝗼 𝗖𝗿𝗮𝗰𝗸𝗲𝗿 𝗦𝗵𝗲𝗲𝘁 - https://bit.ly/3wnQsVv
+
+𝗛𝗼𝘄 𝘁𝗼 𝗖𝗿𝗮𝗰𝗸 Hulu - https://lnkd.in/d9yngirw
+𝗛𝘂𝗹𝘂 𝗖𝗿𝗮𝗰𝗸𝗲𝗿 𝗦𝗵𝗲𝗲𝘁 - https://bit.ly/3T44jKz
+
+𝗛𝗼𝘄 𝘁𝗼 𝗖𝗿𝗮𝗰𝗸 Uber - https://lnkd.in/dhBRF8jC
+𝗨𝗯𝗲𝗿 𝗖𝗿𝗮𝗰𝗸𝗲𝗿 𝗦𝗵𝗲𝗲𝘁 - https://bit.ly/3QALKMp
+
+𝗛𝗼𝘄 𝘁𝗼 𝗖𝗿𝗮𝗰𝗸 Meta - https://lnkd.in/dFMCNnDZ
+𝗠𝗲𝘁𝗮 𝗖𝗿𝗮𝗰𝗸𝗲𝗿 𝗦𝗵𝗲𝗲𝘁 - https://bit.ly/3AlglYG
+
+𝗖𝗮𝗿𝗯𝗼𝗻 𝗟𝗮𝗻𝗴𝘂𝗮𝗴𝗲 𝗧𝘂𝘁𝗼𝗿𝗶𝗮𝗹 - https://lnkd.in/gAVDgy4s
+
+𝗛𝗼𝘄 𝘁𝗼 𝗖𝗿𝗮𝗰𝗸 Netflix - https://lnkd.in/gNiyqWTW
+𝗡𝗲𝘁𝗳𝗹𝗶𝘅 𝗖𝗿𝗮𝗰𝗸𝗲𝗿 𝗦𝗵𝗲𝗲𝘁 - https://bit.ly/3zFxgDo
+
+𝗛𝗼𝘄 𝘁𝗼 𝗖𝗿𝗮𝗰𝗸 Tesla - https://lnkd.in/gBvJiizm
+𝗧𝗲𝘀𝗹𝗮 𝗖𝗿𝗮𝗰𝗸𝗲𝗿 𝗦𝗵𝗲𝗲𝘁 - https://bit.ly/3zDy7Vb
+
+𝗔𝗹𝗴𝗼𝗠𝗮𝘀𝘁𝗲𝗿 Sheet [𝟭𝟮𝟬+ 𝗔𝗹𝗴𝗼𝗿𝗶𝘁𝗵𝗺 𝗣𝗮𝘁𝘁𝗲𝗿𝗻𝘀] - https://bit.ly/3zGu8bL
+
 1. He was always punctual. I cannot remember a day that he was late even by a minute. He may come few minutes early but never late. Respect for time is very important to build a great reputation.
 
 2. He was always regular. In 8 years, he has never taken a single day off. Very rarely he needs a leave but always informs well in advance. Commitment and dependability is very important in customer service.
